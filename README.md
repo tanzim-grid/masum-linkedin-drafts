@@ -1,2 +1,0 @@
-# masum-linkedin-drafts
-Drafts
